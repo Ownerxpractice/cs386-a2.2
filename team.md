@@ -1,5 +1,5 @@
 Brandon Tavares
-## AI training specialist, engineer, scientist, tester, debugger without job prospects
+## AI training specialist engineer scientist tester debugger without job prospects
 
 # Bob Vance
 
